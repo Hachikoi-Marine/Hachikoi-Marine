@@ -2,9 +2,9 @@
 ### Follow my main account pls
 [Hachikoi-Main](https://github.com/Hachikoi-the-creator)
 - 👋 Hi, I’m @Hachikoi-Marine
-- 👀 I’m interested in ... web3
-- 🌱 I’m currently learning ... Solidty, Next.js, React, Trading
-- 💞️ I’m looking to collaborate on ... THE FUTURE OF THE WEB!!!
+- 👀 I’m interested in ... you >~<
+- 🌱 I’m currently learning ... some stuff
+- 💞️ I’m looking to collaborate on, I dont I work alone /j
 - 📫 How to reach me ... just say my name out loud, I'll be there...
 
 
